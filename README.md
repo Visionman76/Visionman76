@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Visionman76
-- 👀 I’m interested in the deepweb and dark
-- 🌱 I’m currently learning to understand 
-- 💞️ I’m looking to collaborate on nothing 
-- 📫 How to reach me 
+- 👀 I’m interested in changing opinion about crypto currency's 
+- 🌱 I’m currently learning all the market 
+- 💞️ I’m looking to collaborate with trader 
+- 📫 How to reach me, on my mail 
 
 <!---
 Visionman76/Visionman76 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
